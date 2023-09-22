@@ -1,4 +1,4 @@
-# Leandro Boxler
-# David Flores
-# Lorena Bravo / 35 años / La Banda - Sgo Del Estero
+# Leandro Boxler / 24 / Lanus
+# David Flores / 26 años / Lanus
+# Lorena Bravo / 35 / La Banda - Sgo Del Estero
 # Rodrigo Jigen 
